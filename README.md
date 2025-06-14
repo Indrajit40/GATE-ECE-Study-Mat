@@ -2,6 +2,8 @@
 All notes book and link.
 
 Subject Wise Author Name : https://www.gatenotes.in/gate-books-for-ece.php
+                           https://testbook.com/gate-ec/best-books-for-preparation
+                           https://www.ndl.gov.in/      (National Digital Libary of India)
 
 
 Form copilot:::::
